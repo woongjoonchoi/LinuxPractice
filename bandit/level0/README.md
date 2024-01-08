@@ -1,2 +1,2 @@
-![image](https://kau365-my.sharepoint.com/personal/oongjoon_kau_kr/Documents/%EA%B9%83%ED%97%99%EC%9A%A9%EC%9D%B4%EB%AF%B8%EC%A7%80/linux/banditlevel0.png)  
+![image](https://onedrive.live.com/embed?resid=7E81BBCD99889380%217808&authkey=%21ABoh16NKiofgGgI&width=865&height=588)  
 
